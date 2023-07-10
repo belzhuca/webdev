@@ -7,8 +7,11 @@ Some of my interests:
 
 
 *Sewing & clothing design
+
 *Photography
+
 *Reading
+
 *Crochet
 
 
